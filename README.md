@@ -2,5 +2,5 @@
 SFDC Trailhead
 
 
-Cześć to ja! tyrytyry ---tatarata
+Cześć to ja! tyrytyry ---tatarata--
 
